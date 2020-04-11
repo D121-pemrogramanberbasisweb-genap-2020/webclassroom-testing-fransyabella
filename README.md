@@ -1,3 +1,3 @@
-Nama : 
+Nama : Fransya Bella Jacob Padudung
 
-NIM  :
+NIM  : D121181006
